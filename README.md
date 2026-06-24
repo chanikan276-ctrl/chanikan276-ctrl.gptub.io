@@ -1,1 +1,1 @@
-# chanikan276-ctrl.gptub.io
+# chanikan276-ctrl.gitub.io
